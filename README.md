@@ -1,4 +1,4 @@
-## Responsi Teknologi Cloud Computing.
+## UAS Teknologi Cloud Computing.
 
 ***
 
